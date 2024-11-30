@@ -7,3 +7,4 @@
 - 📫 How to reach me: bahaaabekhit@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Every step leaves a foot print no matter how small
+- Resume : [Bahaa Mohamed.pdf](https://github.com/user-attachments/files/17966979/Bahaa.Mohamed.pdf)
